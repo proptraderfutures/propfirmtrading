@@ -1,1 +1,1 @@
-# propfirmtrading
+https://wikipropfirm.com
